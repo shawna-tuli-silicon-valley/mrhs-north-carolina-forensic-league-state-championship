@@ -1,4 +1,4 @@
-# Debate Team 🎤📄
+![NSDA-Logo-RGB](https://user-images.githubusercontent.com/19508013/165650961-140f154e-2ec1-417f-be95-2edc135a434a.png)
 
 I competed in [Public Forum Debate](https://www.speechwire.com/tfl13.pdf) and [Impromptu Speaking](https://www.speechwire.com/tfl14.pdf) at the NC Forensic League State Championship.
 
