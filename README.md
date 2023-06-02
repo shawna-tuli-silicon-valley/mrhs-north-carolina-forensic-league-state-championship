@@ -4,6 +4,6 @@
 
 • [Shawna Tuli 2014 Tarheel Forensic League State Championship in Novice Public Forum Debate](https://www.speechwire.com/tfl13.pdf)
 
-• [Shawna Tuli 2014 Tarheel Forensic League State Championship in Impromptu Speaking](https://www.speechwire.com/tfl14.pdf)
+• [Shawna Tuli 2014 Tarheel Forensic League State Championship in Novice Impromptu Speaking](https://www.speechwire.com/tfl14.pdf)
 
 ![IMG_20140201_185617574](https://user-images.githubusercontent.com/19508013/163060728-6c0d7161-81f4-457a-b41c-93187cd1fa9f.jpeg)
